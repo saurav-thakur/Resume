@@ -1,2 +1,2 @@
 # Resume
-I will  Update my resume Soon!!
+I will  update my resume Soon!!
